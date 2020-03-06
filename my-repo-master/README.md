@@ -1,1 +1,0 @@
-# mansipatel.github.io
